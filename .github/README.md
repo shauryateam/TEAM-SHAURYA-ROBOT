@@ -10,11 +10,11 @@
 </p>
 ━━━━━━━━━━━━━━━━━━━━━━
 <p align="center">
-  <img src="https://telegra.ph/file/7f9abc8e7eb950cb88952.jpg">
+  <img src="https://te.legra.ph/file/743570cee67092f5d03b7.jpg">
 </p>
 
 ## ㅤㅤㅤ 🖤ꜰᴀʟʟᴇɴ ʀᴏʙᴏᴛ🖤
-ɪ ᴀᴍ ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [💞ꜰᴀʟʟᴇɴ ʀᴏʙᴏᴛ​💞](https://t.me/chotubot_xd)
+ɪ ᴀᴍ ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [💞ꜰᴀʟʟᴇɴ ʀᴏʙᴏᴛ​💞](https://t.me/agora_robots)
 ᴛʜɪs ɪs ᴀ ᴅᴇᴍᴏ ʙᴏᴛ <br> ɪ ᴅᴏɴ'ᴛ ᴋɴᴏᴡ нσω ʟᴏɴɢᴇʀ ɪ'ʟʟ вε ʜᴏsᴛɪɴɢ ɪᴛ​...
 ━━━━━━━━━━━━━━━━━━━━━━
 ## ㅤㅤㅤᴅᴇᴘʟᴏʏ ᴏɴ ʜᴇʀᴏᴋᴜ​ 🚀
@@ -24,4 +24,4 @@
 
 ### ㅤㅤㅤㅤCREDITS 😘
 
-🖤 𝝙𝗡𝗢𝗡𝗬𝗠𝗢𝗨𝗦 : ᴍᴇ ᴏɴ [ɢɪᴛʜᴜʙ💞](https://github.com/MR-KANNADIGA)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ᴍᴇ ᴏɴ [𝐊𝐈𝐍𝐆](https://telegram.me/KARUNADA_Sarkar)
+🖤 𝝙𝗡𝗢𝗡𝗬𝗠𝗢𝗨𝗦 : ᴍᴇ ᴏɴ [ɢɪᴛʜᴜʙ💞](https://github.com/MR-KANNADIGA)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ᴍᴇ ᴏɴ [𝐊𝐈𝐍𝐆](https://telegram.me/agoraempire)
